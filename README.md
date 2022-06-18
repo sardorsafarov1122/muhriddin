@@ -1,0 +1,2 @@
+# muhriddin
+saytlar
